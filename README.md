@@ -1,6 +1,10 @@
 # LA-iphone<img width="1470" height="956" alt="スクリーンショット 2026-02-07 9 39 09" src="https://github.com/user-attachments/assets/bc7a5518-adac-4418-96ed-3fb21ee4a60c" />
 <img width="1470" height="956" alt="スクリーンショット 2026-02-07 9 39 23" src="https://github.com/user-attachments/assets/8b83a3cf-3262-41b8-b0cb-18c6202c9c30" />
-<img width="1470" height="956" alt="スクリーンショット 2026-02-07 9 39 34" src="https://github.com/user-attachments/assets/5c1114fe-9e33-4408-85b6-5ac3b0ef56ef" />
+<img width="1470" height="956" alt="スクリーンショット 2026-02-07 9 39 34" src="https://github.com/user-attachments/assets/5c1
+
+https://github.com/user-attachments/assets/9cfc2607-d087-4e88-b89a-d14ecf0cc67f
+
+114fe-9e33-4408-85b6-5ac3b0ef56ef" />
 <img width="1470" height="956" alt="スクリーンショット 2026-02-07 9 39 43" src="https://github.com/user-attachments/assets/a4c5d51a-4aaf-4d89-8a1b-677f9cd735cd" />
 <img width="1470" height="956" alt="スクリーンショット 2026-02-07 9 39 52" src="https://github.com/user-attachments/assets/5d0de183-544d-4970-8df8-122c3d9648fd" />
 <img width="1470" height="956" alt="スクリーンショット 2026-02-07 9 40 01" src="https://github.com/user-attachments/assets/608145e5-72e1-4e14-9d6c-1a7e1984e96a" />
